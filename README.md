@@ -1,1 +1,1 @@
-# MuhammedFaruk.github.io
+# muhammedfarukk.github.io
